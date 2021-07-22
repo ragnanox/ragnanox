@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ragnanox
+- 👦 My pronouns are he/him
+- 👀 I’m an artist making things between reality, fiction, simulation and dream
+- 🌱 I’m currently learning how to use 3D modelling programs and video game engines
+- 📫 You can reach me at hello [at] ragnanox [dot] com
